@@ -1,1 +1,1 @@
-Bem vido a meu perfil ✍️
+Bem vindo a meu perfil ✍️
