@@ -3,3 +3,5 @@
 Meu nome é Nelson 
 
 - Estou estudando no alura
+
+"🧿"
